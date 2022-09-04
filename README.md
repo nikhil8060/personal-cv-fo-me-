@@ -1,1 +1,1 @@
-# personal-cv-fo-me-
+# personal-cv-for-me-
